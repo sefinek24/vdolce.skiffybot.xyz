@@ -1,0 +1,1 @@
+### Zwykły crap, nawet tego nie włączaj, bo nie ma po co xD
